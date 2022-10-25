@@ -1,6 +1,6 @@
 # Office hours : 
 
-| Day | time | 
+| Day | time | | 
 | --| --| 
 | Mondays| 11 am - noon | | 
 | Tuesdays | 9 am - 10 am | | 
