@@ -1,3 +1,5 @@
+# No Office hour Monday November 14th !!!
+
 # Office hours : 
 
 | Day | time (eastern time )| | 
