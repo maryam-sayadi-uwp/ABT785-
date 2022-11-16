@@ -1,4 +1,4 @@
-# No Office hour Monday November 14th !!!
+# No Office hour MondayWednesday November 16th !!!
 
 # Office hours : 
 
