@@ -1,4 +1,4 @@
-# No Office hour MondayWednesday November 16th !!!
+# Friday 18th Ofiice hour will start with 1 hour delay at noon eastern time. Please contact me if you need to set up individual office hours today or over the weekend!!
 
 # Office hours : 
 
