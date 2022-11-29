@@ -1,4 +1,6 @@
-# Friday 18th Office hour will start with 1 hour delay at noon eastern time. Please contact me if you need to set up individual office hours today or over the weekend!!
+#Office hours are back. Times might change!  Please contact sayadima@msu.edu for more details! 
+
+
 
 # Office hours : 
 
